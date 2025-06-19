@@ -6,8 +6,8 @@ Public Domain Works by Nicholas Adontz (1871-1942).
 
 Russian - Plain Text  
 Russian - PDF | CustomDesign1 | CustomDesign2  
-English - Plain Text  
-English - PDF  
+[English - Plain Text](https://archive.org/details/adontz-2020-goddess-cybele)  
+[English - PDF](https://archive.org/details/adontz-2020-goddess-cybele)  
 
 ## Dionysius of Thrace and his Armenian Commentaries.
 
