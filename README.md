@@ -1,4 +1,4 @@
-# Nicholas Adontz.
+# Nicholas Adontz (Նիկողայոս Ադոնց).
 
 Public Domain Works by Nicholas Adontz (1871-1942).
 
